@@ -1,5 +1,4 @@
-
-<!---
-fhar28/fhar28 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Concentric Daksh Services Philippines
+Hr Manager
+7-28-1983
+±639566957000
