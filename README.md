@@ -1,4 +1,4 @@
-Concentric Daksh Services Philippines
+Concentrix Daksh Services Philippines
 Hr Manager
 7-28-1983
 ±639566957000
